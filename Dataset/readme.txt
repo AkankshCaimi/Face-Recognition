@@ -1,0 +1,1 @@
+*****Keep all the photos in this folder.*****
